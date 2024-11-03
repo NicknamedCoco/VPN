@@ -3,9 +3,4 @@
 
 魔戒，有阿根廷和土耳其节点，邀请链接：
 https://mojie.co/register?aff=6MU4hzUx
-
-瞄速云，有阿根廷和土耳其节点，邀请链接：https://cat77.org/#/register?code=qMAvgTwy
-
-有steam需要绑定阿根廷，土耳其手机号的，或是注册其他软件需要绑定手机号的联系我，比淘宝便宜~
-
-最新，雷霆：https://invite.ltss.cc/tVp7qVSK
+目前在用魔戒，永久流量不过期非常不错
